@@ -1,0 +1,807 @@
+# Sommaire
+
+1. [La Marche](#la-marche)
+2. [La tour des Mages](#la-tour-des-mages)
+3. [Embruns](#embruns)
+4. [Les Pirates de la Triade](#les-pirates-de-la-triade)
+5. [L’Île des Amazones](#lîle-des-amazones)
+6. [Forgefer](#forgefer)
+7. [Najac et le Val des Corbeaux](#najac-et-le-val-des-corbeaux)
+
+# La Marche
+
+## Notes de Partie 1 (10/11/2019)
+
+Le plus important : G0bb0s est la plus brillante, amusante et aimable  personne de  cet UNIVERS !!!!!!!!!!
+
+On débute de notre session de jeu, nous avons pris le temps d'établir quelques villes et royaumes pour construire notre univers.
+
+Nous sommes passés ensuite à la présentation de nos personnages.
+
+La motivation du groupe est une croisade contre la secte des hématophages.
+
+Notre Campagne débute
+
+Nous marchons vers Belogne car un dénommé Nérial aurait des informations sur la secte des hématophages.
+
+Nous nous arrêtons dans une salle commune, avec quelques personnes à table, mais c'est très calme. Soirée de douce de printemps.
+
+Sir Henry joue aux dès, Edwin le surveille, Fenka part dormir, Poldaran sort pour parler à sa chouette. Felrug, fait les poches. 
+
+Edwin a remarqué des personnages encapuchonné, qui ne semblent pas agressifs.
+
+Felrug, dans sa fouille, réussit son vol et obtient un point de trésor. Une deuxième tentative de vol a échoué. Pris sur la vif, Felrug est menacé par un couteau et se rétracte. Edwin abaisse les tensions, et comprend que les hommes encapuchonnés sont en route vers Belogne.
+
+Au lendemain matin, nous prenons le petit-déjeuné. Edwin demande à l'aubergiste les informations du coin. Apparemment il y aurait des attaques de trolls qui sévissent dans la région, mais ce ne sont que des ragots des passants.
+
+Nous reprenons la route, et nous marchons la moitié de la journée. Un moment on passe une petite montée de la route, en on entend de la baston et des hurlements. 
+
+Une caravane est attaquée par des trolls, un homme avec deux jeunes filles sont pris d'assauts. Les gardes étaient débordés. Nous les avons sauvé.
+
+Golrak, le seigneur de la Marche et il nous demande comment nous pouvons le remercier. Il a deux gardes et ses deux filles l'accompagnent. Réxandre et Géanne. Ils étaient dans la ville de Magiral pour s'occuper de Géanne. 
+
+Nous proposons au Seigneur Golrak jusqu'à chez lui.
+
+***
+
+## Notes de partie 2 (17/11/2019)
+
+Nous arrivons à Lucènes. La ville est sans âmes.
+
+Les gens restent cloisonnés chez eux. 
+
+L'aubergiste suppose que l'esprit protecteur est en colère et que la nourriture n'est pas touchée au totem. Felkan suppose que la procédure des offrandes ne semble pas mauvaise.
+
+Il semble que quelque chose soit arrivé à l'esprit protecteur du village. L'aubergiste nous indique une direction approximative. Nous prenons la route et la nuit nous arrivons juste avant un marécage, pour camper et reprendre la route le lendemain. 
+
+Nous faisons des tours de garde. Fenka fait le premier tour de garde de 2h. Edwin prend le deuxième tour de garde de 3h, il n'y a rien qui se passe. Sir Henri prend le troisième tour de garde, La nuit c'est bien déroulé.
+
+Nous reprenons la route vers la grotte de l'esprit protecteur. Edwin trouve une piste que nous suivons. Une forme qui bande un arc et balance une flèche à ses pieds. On leur explique que nous cherchons à vois la grotte sacrée du cerf blanc.
+
+Un personnage s'approche de nous : un Ulfur (Eren) s'approche de nous. Voyant que nous intentions sont bonnes, il nous escorte avec 4 de ses compagnons à la grotte.
+
+Arrivant devant la grotte, les Ulfurs nous laissent à l'entrée en nous recommandant de ne rien faire de grave. Il fait très sombre, c'est une caverne de cristal.
+
+Il y a des cristaux qui ont quelques formes humanoïdes observés par Sir Henri. Lorsqu'il s'approche, ça bouge. Fenka s'approche, l'aspect humanoïde, se dresse.
+
+Nous continuons notre route, plus en s'avance, plus il y a des formes. Nous progressons sans soucis jusqu'à arrivé une place avec un cristal scintillant et en entendant des graviers en train d'être mâchouillé.
+
+Il y a une masse énorme sur le fond qui mâchouille. Il s'appelle le dévoreur. Il semble dévorer le Cerf Blanc. Il est en train de manger des cristaux.
+
+Après un débat avec la bestiole, nous comprenons que le seul moyen de pouvoir protéger le cristal scintillant, c'est d'engager le combat contre cette mystérieuse créature.
+
+Le dévoreur vaincu, un esprit blanc nous remercie par la pensée et disparaît. Le cristal gigantesque blanc ne scintille, mais brille sans discontinuité. 
+
+Nous retournons, au village, et les villageois constatent que leur esprit protecteur est revenu les protéger.
+
+***
+
+## Notes de partie 3 (24/11/2019)
+
+Nous redémarrons notre quête à Lucènes et nous reprenons la route vers Belogne. Il reste deux jours de marche.
+
+Sur la route vers Belogne, nous demandons au Seigneur de La Marche que Nérial est un grand alchimiste que nous pourrons rencontrer car il nous le présentera.
+
+En arrivant à Belogne, le Seigneur de la Marche nous invite à une grande réception à sa forteresse. Alors que les autres vont voir Nérial.
+
+La fille malade a une maladie inconnue, son état est un peu plus stable. On lui donne beaucoup de médicaments parce que la maladie n'a pas été diagnostiquée.
+
+On trouve une auberge pour dormir dans la soirée.
+
+Nous décidons d'aller voir Nérial. Il est dans le quartier des halles. 
+
+Nous nous séparons en deux Groupes. Moi et Poldaran nous allons dans la boutique d’apothicaire où se trouve Nérial, et Edwin et Sir Henri font fait des trucs d'hommes. 
+
+Il y a quelques personnes qui sont dans la boutique, il y a un ogre imposant qui tient le comptoir. Il nous invite à revenir à la fin de son service pour aller à la rencontre du propriétaire qui n'est autre que Nérial.
+
+Pendant ce temps, Edwin et Sir Henri vont au forgeron.
+
+La nuit tombé, nous retrouvons l'ogre qui nous mène vers Nérial. Il vient de s'arrêter. Tout est sobre, de bonne qualité.
+
+Nérial est un sidhe, très vieux. Poldaran explique notre situation avec la guilde des hématophages.
+
+La chouette est revenue avec un animal vivant. Poldaran verse du sang dans la bouche de l'animal qui convulse et qui meurt.
+
+Nérial examine l'animal mort. Il demande du sang de Poldaran pour l'examiner. 
+
+Nérial connait le mode opératoire de la secte mais qui est plus agressive. Tout remonte à l'époque d'Amélia,(reine il y a 3 ou 4 générations = ancien). Un groupe de sorciers étudiaient la puissance de la magie du sang, sous autorisation royale car elle pensait que cela pourrait profiter à son royaume. Le problème, certains mages de cet ordre ont été corrompu pour la ténèbres (rien d'avérer) et certains ont commencé à vendre leur trouvaille. Ce genre de produits ce sont retrouvés dans la rue. Le résultat était fantastique aux premiers degrés (augmentation de la capacité humaine physique et magique), mais le sang demandait beaucoup de sacrifices chez les condamnés. Lorsque la reine a appris que les produits se retrouvaient dans la rue, Nérial a mené une enquête qui a démantelé le groupe et exécuté les chefs du groupe. D'autres alchimistes ont repris le flambeau en récupérant certains ouvrages et préparations. Nérial n'a pas pu éradiquer ce fléau. A la mort de la reine, Nérial s'est retiré car le monarque suivant n'y voyait qu'une chimère. Mais il n'a pas constaté à Belogne ce genre d'agissement, mais le voir dans d'autres contrés et surtout de cette manière aussi agressive, il y a lieu de s'inquiéter. 
+
+Mode opératoire de la secte : il se base sur les cercles de nobles, et ils ont cherché à infiltré ces groupes par les  maillons faibles (personne ayant des ressentiments, regrets...).
+
+Le Seigneur de la Marche nous aidera probablement à infiltrer un cercle des nobles. L'aubergiste nous dit qu'il y a beaucoup d'attaque de trolls. Nous passons la nuit à l'auberge.
+
+Poldaran fait des recherches à la bibliothèque de Nérial.
+
+Le quartier Saint-Eustache est les bas quartiers de Belogne. 
+
+Nous arrivons à l'auberge du cul du loup. Des gens se plaignent de se faire les poches alors qu'ils devaient passer dans un certain quartier (Talus Saint-Eustache) par des gamins.
+
+Pendant que je donne de l'argent aux mendiants, un gamin m'observe. Edwin qui l'a détecté le suit, Sir Henri et moi-même avec lui. Mais il perd vite sa piste. Moi je rapplique et un gamin me demande de l'argent. Il choppe la bourse et après l'avoir rattrapé nous le ramenons à l'auberge du cul du loup pour l'interroger et rechercher son maître. Loris.
+
+***
+
+## Notes de partie 4 (15/12/2019)
+
+Poldaran arrive à la bibliothèque de Nérial. Elle commence à regarder les en-têtes. La majorité des livres traitent sur la magie et l'alchimie.
+
+Poldaran trouve des ouvrages qui traitent sur des rituels avec des sacrifices d'animaux. C'est informatif, mais c'est juste à l'état de recherches et de suppositions. Certains rituels sont augmentés par le sang. On sait que le sang a une importance dans certains rituels.
+
+L'équipe qui est à la recherche de celui qui utilise les enfants pour les vols dans la rue, et décide de mettre au courant Poldaran, mais il ne répond pas.
+
+En l'interrogeant, on apprend qu'un certain Mr Saliquart, qui donnait de l'argent à l'orphelinat dans le quartier St Eustache. Mr Saliquart revenait plus souvent et demande aux enfants plus grand de cambrioler.
+
+Nous décidons de partir à l'orphelinat Saint Eustache. C'est une grande battisse austère et bien entretenue. En entrant dans le grand hall principal. Il y a beaucoup d'enfants (environ 50), jusqu'à environ 13 ans. Il y a une directrice qui s'appelle Mme Armidée, qui nous dit où se trouve Mr Saliquart.
+
+On décide d'interpeller le leader des plus grands pour avoir des informations. On décide de l'accompagner dans une cour. Nous mettons en place un plan, pour piéger Mr Saliquart.
+
+Nous rentrons à l'auberge pour passer la nuit, et nous entreprendrons de prendre la route pour la fête la forteresse.
+
+Le lendemain l'équipe se rend à la forteresse de La Marche pour une fête auquel nous a invité le Seigneur Golrak. 
+
+A la forteresse, on van dans le grand hall pour la réception. 
+
+***
+
+## Notes de partie 5
+
+Il ne s'est rien passé ici.
+
+
+Circulez, y'a rien à voir
+
+***
+
+## Notes de partie 6 (23/02/2020)
+
+Après 10 min de sommeil. Les domestiques nous apporte de quoi nous laver et nous habiller. 
+
+En descendant, on aperçoit un énorme banquet, ainsi qu'un espace dédié à la danse. C'est clair que cet événement est riche.
+
+Le Seigneur de la Marche nous invite à manger et nous apprends qu'il y aura une joute le lendemain et la soirée commence.
+
+Le seigneur de la Marche nous présente différents familles nobles. De Blinville, de Vernuchets. Les Blinville sont des négociant où ils ont fait la fortune avec le mile. Les Vernuchet sont plutôt orienté sur le territoire. Et son cousin, Salicar qu'il nous présente.
+
+Salicar a l'air plus vieux que son âge. Je profite de l'occasion pour lui poser quelques questions et collaborer avec les informations que nous eu à l'orphelinat.
+
+Une comtesse s'approche de Poldaran. Elle est empathique sur la destruction de la ville de Poldaran.
+
+Edwin demande des informations sur Salicar avec Ameline. Le Seigneur de la Marche lui a cédé quelques terres pour qu'il puisse vivre sa vie. Il est en bon terme. 
+
+Mr de Blinville s'approche d'Edwin pour parler de faits d'armes militaires.
+
+Rixende vient me voir pour parler sur mes voyages et sur les guérisons. Elle est inquiète par rapport à la maladie de sa soeur.
+
+Edwin remarque 4 adolescents (probablement de la famille Binville et Vernuchets) parlent avec Salicar. Quand Edwin se déplace, le groupe des 4 adolescents et Salicar se dispersent.
+
+En discutant avec la famille de Vernuchets, j'apprends que le Seigneur de la Marche veut essayer de régler les problèmes liées à la recrudescence des trolls.
+
+Edwin et Poldaran commencent à fouiller la chambre de Salicar.
+
+En bas,  un annonceur parle du grand spectacle qui va commencer. Une troupe entre, avec des masques en bois. A un moment, un comédien s'approche de la famille de La Marche et tant la main vers Jehanne pour qu'elle vienne faire un tour de disparition. Salicar se propose pour se faire disparaître. 
+
+Edwin et Poldaran trouvent une amulette invisible, qui brûle lorsqu'on le porte. 
+
+Salicar et toute la troupe se sont enfuis. On les rattrape.
+
+***
+
+## Notes de partie 7 (08/03/2020)
+
+On monte un camp dans une cabane abandonnée.
+
+Poldaran envoie sa chouette à Nérial pour en connaître un peu plus sur l'amulette. Nérial n'est pas à son atelier, il y sera le soir.
+
+Lorsque je le déshabille, on voit des scarifications qui font des cercles magiques, il s'agit des mêmes tatouages que ceux de la secte des hématophages. 
+
+Je pars pour voir le Seigneur de La Marche.
+
+L'interrogatoire de Salicar : les scarifications augmentent les pouvoirs magiques, mais il dit qu'il n'a pas le lien avec les hématophages. L'amulette est le résultat d'un rituel aussi où un esprit puissant. Le "nous" lui a échappé. Il voit qu'il en a trop dit, et s'arrête de parler. Il ne veut pas parler des autres. Il reconnait d'avoir utilisé les enfants pour les cambriolages.
+
+Le plan de Salicar, c'est d'être suffisamment puissant pour renverser les nobles qui ont pris ses terres. Un avatar du démon est enfermé dans l'amulette. Le bouquin a été volé à une noble de la ville de Narjac. Elle en fait une description.
+
+Les compagnons de Salicar a embrigadé les jeunes des familles proches de la famille de La Marche.
+
+***
+
+## Notes de partie 8 (22/03/2020)
+
+Les compagnons attendent le retour de Fenka à l'auberge du cul du loup.
+
+Ils vont tous ensemble chez Nérial le chimiste. Yasur (Maurice) l'ogre accueille à la boutique et mène jusqu'à Nérial. Poldaran donne le médaillon pour le faire analyser par Nérial. Il ne peut faire l'analyse de l'amulette en profondeur, mais des opérations d'analyses magiques rapides.
+
+Conclusions : s'il est affilié à un démon, il n'en est pas l'esprit complet, juste une partie. Il est enfermé dans cette amulette. Si personne ne la porte pas, on ne peut pas l'utiliser. Il y a des protections pour empêcher d'utiliser l'amulette par une autre personne que sont propriétaires. Lorsque Nérial a démantelé la secte, il y avait des opérations pour récupérer des démons de cette même manière. 
+
+Edwin prend du temps pour parler en privé avec Nérial.
+
+Loris, le petit garçon que nous avons aidé à Belogne, veut accompagner notre groupe. Fenka veut en faire son disciple. Le groupe décide de partir de nuit pour arriver au village du Bourg-au-Prince.
+
+Fenka prend le temps d'expliquer les rudiments de la médecine. Loris ne semble pas du tout intéressé. Le matin, Edwin et Sir Henri, entraînent Loris qui semble attentif et intéressé. C'est la plaine. Loris est très disponible et serviable.
+
+Le groupe reprend la route sous la pluie. Il ne se passe rien de spécial. Pas de village à l'horizon, la route n'est pas très fréquentée. Le groupe monte un camp. Poldaran veut vérifier le talent magique de Loris, mais sans motivation. Sir Henri part récupérer de la nourriture, il chasse les animaux à la fronde mais se rate. Poldaran prépare le feu. Fenka et Poldaran fait la cuisine.
+
+Poldaran fait l'analyse de l'amulette avant d'aller se coucher sur la nature des sortilèges de protection. Elle voit comment sont faites les protections, et avec un peu d'aide, elle pourra les lever. Il faudra du sang, et une installation particulière. 
+
+Pendant le premier tour de garde de nuit d'Edwin, il ne se passe rien. Edwin pose des pièges d'alarme qui feront l'affaire. Pour Fenka en deuxième partie de la nuit, il ne se passe rien. Pour Poldaran en troisième partie de la nuit, elle trouve des lucioles et en attrappent quelques unes pour les enfermer dans un bocal. Pour Henri, à la quatrième partie, il ne se passe rien. Avant la fin de son quart, Sir Henri et Edwin apprennent les rudiments du combat à Loris. 
+
+Le groupe reprend la route le lendemain matin. Aucun problème sur la route, et le groupe arrive dans un petit village. Mais en approchant, les bâtiments sont étranges, et il n'y a pas beaucoup d'activités. Le village est presque un taudis, la moitié des champs étaient en friche. 
+
+Il se trouve que dans ce village, Edwin et Sir Henri, ont créé du grabuge à l'intérieur quand vous étiez très alcoolisé, et le groupe décide de continuer de la route pour créer un camp plus loin.
+
+Premier tour de garde de nuit, Edwin n'arrive pas à poser des pièges d'alarme. Rien de spécial se passe la nuit. 
+
+Le lendemain matin. Entrainement de Loris par Edwin et sir Henri. Poldaran reconnait la région, et on arrive au village Le Haut Grat. Village montagnard, reculé et tranquille. C'est un village avec beaucoup de Sidhe. L'oncle de Poldaran, Beldin, qui semble pouvoir accueillir pour la nuit dans sa ferme. Beldin et sa famille standard Sidhe nous accueille chez eux dans leur ferme standard. La soirée se passe bien avec un repas chaleureux. 
+
+Pendant la soirée, l'oncle de Poldaran prend à part sa nièce Poldaran.
+
+# La tour des Mages
+
+## Notes de partie 9 (29/03/2020)
+
+En montant, le groupe arrive à la tour des mages. Cette tour est organisée en étage qui correspond à un domaine d'étude de la magie. Certains étages sont inaccessibles au nom des initiés. Il y a 10 archimages, avec un grand archimage qui dirige. L'archimage qui dirige la région, mais il ne s'en occupe pas. Chaque village se débrouille. Archimage actuel s'appelle Drugan, qui est un gnome.
+
+A l'intérieur de la tour, il y a un grand comptoir avec une humaine. Elle tend des papiers à remplir dont Poldaran va se charger. Il y a trois étages intéressant : les enchantements, les esprits et les portails (c'est à cet endroit où était le bureau du père de Poldaran).
+
+Le groupe, décide de passer la nuit à la tour. Poldaran enseigne à Loris les arts de la magie. Ensuite Fenka et Poldaran vont pour enlever les protections de l'amulette. Fenka donne son sang pour le rituel. Le rituel terminé, l'amulette n'a plus de verrous. Au moment où Poldaran passe le médaillon autour du coup, elle regarde dans le vide. Fenka essaye de la réveiller, mais elle finit par le faire d'elle-même.
+
+Le lendemain, Edwin et Sir Henri vont entraîner Loris. A la fin de son entrainement le groupe va à l'étage des enchantements. Avec un sort de détection magique, le responsable de l'étage, Bartan, est intéressé par l'amulette est part en faire une analyse. Fenka propose à Poldoran de trouver des novices pour les enchanter.
+
+Le responsable du département des enchantements revient avec ses collègues et propose à Poldaran une étude approfondie en une journée. Le reste du groupe propose aux novices d'enchanter les lames d'Edwin et de Loris.
+
+Poldaran et Fenka participent à l'analyse de l'amulette et à la fin de la journée ils pourront faire ensemble un rapport sur l'amulette. Du côté des enchantements sur les épées, l'enchantement de la première lame réussie, les deux autres épées ont échoué.
+
+Le rapport de l'amulette. L'Esprit de l'amulette est un esprit qui est lié au démon Zilidith. Un démon qui est lié à la magie du sang. Pour l'Esprit, il est invisible et il suit l'amulette et il ne peut interagir avec l'environnement physique. Il est très compétent en magie d'illusion. Elle ne peut être liée à qu'une seule personne, et qu'il est le seul à pouvoir utiliser. L'amulette brûle les autres personnes que son propriétaire. Le rituel pour mettre l'esprit dans cette amulette est inconnu.
+
+Poldaran et Fenka décident d'aller à l'étage des portails. Elles trouvent la responsable de l'étage. Cette Sidhe a reprit la direction à la demande du père Poldaran. Poldaran cherche à avoir des nouvelles de son père. Il n'est pas venu depuis un an sans donner de nouvelles. Le père de Poldaran a une assistante qui entretient dans son bureau, Noémia (humaine), qui attend son retour. En discutant avec elle, elles découvrent que le père de Poldaran avait prévu son long voyage.
+
+Poldaran en cherchant dans le bureau, elle trouve un compartiment secret avec un carnet. Il n'y a pas d'ordre de classement de la bibliothèque, cependant sur le mur à côté il devait y avoir une carte du continent.
+
+Concernant la magie des portails, il a fait faire des artefacts pour pouvoir accueillir des portails. Création des portails permanent.
+
+Arrivé au dortoir, Edwin et Sir Henri entraînent Loris, Poldaran analyse le carnet. Sir Henri prévient Fenka et Poldaran de cet étrange inconnu mage qui s'intéresse un peu trop à la discussion sur l'amulette.
+
+L'archimage fait venir une équipe de sécurité pour un entretien dans son bureau. Une lettre du Seigneur de la Marche nous considère comme des fugitifs. Contre son silence, l'archimage demande aux héros de s'occuper d'un esprit qui a été invoqué et qui empêche d'utiliser la magie sur lui. 
+
+***
+
+## Notes de partie 10 (05/04/2020)
+
+Le groupe rejoint la salle commune pour rencontre Luque, c'est un ogre. Ensemble ils descendent, pour aller affronter le monstre au sous-sol de la tour des mages.
+
+En arrivant au rez-de-chaussée, un homme avec un objet entre les mains. Il est l'esprit que le groupe cherche. Il propose un combat pour avoir la possibilité de se lier à lui. Edwin remporte le combat en le touchant trois fois et finit par se lier à lui. Luque récupère une toile dans un mauvais état.
+
+Drugan reçoit le groupe dans ses appartements, et en les remerciant, il nous permet d'avoir une carriole enchantée. Luque décide de nous suivre, parce qu'il apprend que la guilde que le groupe affronte est maléfique. Luque se sent obligé le groupe et rejoint le groupe.
+
+# Embruns
+
+## Notes de partie 11 (07/06/2020)
+
+La carriole magique est notre objet magique qui nous appartient. A rendre à la fin de notre quête.
+
+Une boite de maquillage a été offert au groupe pour permettre de transformer en une personne dont on connait l'existence. 3 utilisations.
+
+Le garde à l'entrée de la ville portuaire nous dit que la capitainerie et la ville est en difficulté. Le groupe prend la direction du port.
+
+Sir Henri est bousculé par une femme qui ne s'excuse pas, elle laisse tomber un message concernant un pendentif à ramener à la place des trois sœurs à 0h00. Le groupe continue son chemin.
+
+La ville a un problème de la piraterie, un navire commerçant bien armé est le seul de pouvoir faire les traversées. Toutes les bandes de pirate se sont rassemblés pour faire un seul et même groupuscule.
+
+Le groupe décide de chercher une auberge pour passer la nuit : le requin musicien.
+
+Dans la soirée, on parle avec un groupe de marin. L'un d'eux a été abordé par les pirates, le commandant est une femme. 
+
+Poldaran fait la connaissance de capitaine Poldrano, propriétaire d'un bateau dans un mauvais état. Aidé avec Edwin, ils deviennent partenaire.
+
+Luque découvre que les pirates blessent le moins de personne possible. Il y a une lutte des classes au coeur de la ville. 
+
+A 0h00 le groupe se dissimule grâce à Luque pour savoir ce qui se passe par rapport au message récupéré par Poldaran. Fenka voit que la femme elfe regarde souvent en direction de l'église, et il y a des lueurs. A 0h00 la porte de l'église s'ouvre, un homme en sort et demande à femme de s'approcher. Edwin et Luque s'approchent discrètement pour entendre leur conversation. Elle est privée de ses armes, on lui demande de remettre des vêtements. Elle a le fameux pendentif. Poldaran voit qu'il y a une barrière de protection.
+
+Poldaran trouve des petites portes à l'arrière de l'église. Les petites lumières se sont éteintes. Edwin, escaladant l'église jusqu'au vitrail, ne voit rien. Poldaran identifie une barrière magique autour de l'église. Des silhouettes ressortent de l'église, dont l'elfe. Le groupe décide de la suivre.
+
+Fenka et Sir Henri reste de l'église pour voir si on peut accorder asile. Cela ne fonctionne pas. De plus Luque disparaît également.
+
+Le reste du groupe fait une filature. L'elfe s'en rend compte et s'engouffre dans une ruelle et disparaît directement.
+
+***
+
+## Notes de partie 12 (14/06/2020)
+
+Luque s'est fait attraper par l'elfe probablement. Il tente de communiquer sa position, mais l'elfe remarque sa tentative elle l'arrête. Elle relâche son étreinte, elle lui écrit un message et le donne à Luque. Elle le quitte.
+
+Edwin retrouve Luque. Le groupe rentre à l'auberge pour dormir. Le lendemain.
+
+Luques, Poldaran et Fenka vont dans les faubourg pour une rencontre. Le groupe apprend que c'est la fête de la Mère. Le grand titan marin Dragobaure qui sort au large. 2/an il y a un monstre qui apparaît à qui on offre les offrandes. C'est un rite de passage de passage d'offrir les offrandes à Dragobaure.
+
+Le petit groupe arrive à une grande place. Sur les abords de la place il y a l'auberge du nain jaune où a lieu le rdv. Un gnome est en train de feuilleter un livre de compte. Poldaran lui fait la proposition de réparer le bateau du capitaine trouvé la veille pour qu'il fasse des marchandages. Le groupe veut aller sur l'île des amazones. RDV le lendemain avec le capitaine.
+
+Le groupe va au rdv de l'elfe dans une boutique dans les quartiers riches. Elle s'appelle Evélia. Elle enquête sur la secte sanglante, apparemment c'est le chef de l'église. Le Père Falagerne. Elle invite dans un bureau avec une carte annotée. Evélia travaille pour les services de la couronne. Elle s'introduit dans la secte, via la noblesse. La chef des Hématophages est un dragon, Noxiphère. Le pendentif est un moyen à Evélia d'entrer dans l'église.
+
+***
+
+## Notes de partie 13 (21/06/2020)
+
+Edwin et Sir Henry trouvent un armurier.
+
+Luque et Poldarn va retrouver le capitaine à l'auberge.
+
+Fenka arrive dans une forêt. Il y a un étang avec un îlot au milieu avec un temple en bois surmonté d'un symbole de lune. Une habitation habitée par une prêtresse. Elle n'apprend rien de spéciale.
+
+Poldaran et Luque vont à la célébration du prêtre à l'église de la ville. Luque se rend compte que le Père Falagerne est malveillant pendant la célébration. Poldaran essaye d'avoir un entretien avec lui. Poldaran et Luque font la connaissance de Grisotto. Ce dernier l'invite à sa résidence pour une fête mondaine.
+
+Ensuite, le groupe va rencontrer le capitaine et la personne qui s'occupera de réparer son navire. Loris a volé la bourse un noble.
+
+Le bateau partira dans deux jours.
+
+L'usurier propose pour ses services de venir accompagner une famille à escorter en dehors de la ville.
+
+Edwin, Fenka et Sir Henri accompagnent la famille.
+
+Poldaran et Luque restent en ville.
+
+***
+
+## Notes de partie 14 (28/06/2020)
+
+Shérazade mène les paysans vers la porte nord où le groupe doit partir avec les paysans. C’est la quête que nous avait confiée pour réparer le bateau. Les paysans rentrent dans le chariot magique pendant que deux mercenaires arrivent.
+
+Le groupe finit par partir, guidé par Shérazade. Le groupe apprend que sir Henry a de la famille sur l’île des amazones.
+
+On se rend compte que le renard est un esprit. Le groupe prend du repos.
+
+Un groupe de mercenaire, mené par le mercenaire rencontré à la porte d’entrée. Le groupe sort victorieux, et il interroge le chef pour savoir qui a commandité l’attaque. Il s’agit du fameux marchand qui part à la poursuite des paysans.
+
+***
+
+## Notes de partie 15 (05/07/2020)
+
+*SPINOFF*
+
+Le scénario se passe dans le passé de Shérazade. Elle habitait aux abords de la grande forêt au cœur du royaume. Elle habite entre la forêt et la ville d'Erat.
+
+Deux habitants d'Erat, Brastan est un jeune recrue de guet, Tharsile est un magicien de Poldaran, sont appelés pour résoudre un problème qui touche l'agriculture.
+
+Le champs d'Erat ont été attaqués par des bêtes sauvages. Il faut donc aller voir la gardienne. Les deux compères se retrouvent en face d'un arbre qui forme une maison. Shérazade est la gardienne et accepte d'accompagner les deux compères aux champs. 
+
+Selon l'expertise de Shérazade, les bêtes n'ont fait que passer, et ne sont aller qu'au bétail où les bovins ont été massacrés. Elle se sont fait manger, la bête est assez grosse, difficile à dénombrer mais probablement pas qu'une. Shérazade parle au bétail, elles sont terrifiée, elles ont vue une forme et entendu des grognements. Les chiens de la ferme sont préoccupés, les bêtes étaient un peu plus grosse que les vaches. Ils étaient 4 ou 5. Ça ressemblait à des gros chats, et couraient plus vite qu'eux. L'odeur de ces animaux étaient unique, cela ressemblait à l'odeur de la forêt. Shérazade s'occupe des animaux pour les apaiser à la fin de la journée. Shérazade comprend que les créatures de la forêt ne viennent jamais attaquer du bétail spontanément.
+
+Shérazade pendant la nuit entendait des bruits dans la grande forêt difficile à discerner. Le groupe décide de partir vers le lieu d'où viennent les gros chats. Surement que les chats ont chassé en dehors de leur territoire à cause du territoire d'où ils viennent, la grande forêt. Le groupe avance jusqu'à la tombée de la nuit.
+
+Tharsile prépare une hutte avec sa magie pour préparer la nuit, Brastan prépare de quoi faire un feu, Shérazade rentre en communion avec la forêt et perçoit qu'il y a un groupe assez important d'animaux dans la forêt à moins de 3km. Ces créatures font des aller-retour sans s'approcher.
+
+La nuit tombée, les créatures qui sont des singes attaquent le groupe, mais ils sont refrénés par Shérazade. En discutant avec eux, les singes expliquent qu'il n'y a plus rien sur le territoire de la chasse. 
+
+Le groupe continue de remonter la piste des chats. Le groupe voit au loin une cavité qui pourrait être le lieu de vie des chats. Des bébés smilodons sont à l'intérieur mais ils sont abandonnés et ne sont pas nourris depuis longtemps. Le groupe nourrit les bébés. En parlant avec les bébés, on apprend qu'il y avait de moins en moins de nourriture. 
+
+Le groupe se dirige vers le territoire de chasse des smilodons indiqués par les bébés. L'ambiance de la forêt s'assombrit encore plus à la fois par la luminosité et à la fois par l'allure de la forêt. Le groupe finit par arriver à une forêt presque noire. La forêt semble corrompue. Il y a un assemblage de bois pendu à un arbre avec une forme particulière. C'est un signe magique. Tharsile voit que cette fabrication est maculée de sang. Ce n'est pas la source de la magie. 
+
+Tharsile arrive à remonter la piste. La forêt est de plus en plus sombre. Shérazade distingue une silhouette humanoïde. C'est une silhouette féminine noire avec des yeux verts. Puis elle finit par disparaître. En progressant, le groupe arrive à un lieu où la forêt commence à s’éclaircir jusqu'à un grand arbre dans une clairière avec des objets pendus, et des liens attachent l'arbre à des pierres. Ce qui est pendu ce sont des cadavres d'animaux, d'humains... Tharsile voit des inscriptions en sang sur tout l'ensemble. C'est probablement lié aux ténèbres.
+
+Le groupe s'approche d'une pierre de l'ensemble. Il y a des gens qui sont au pied de l'arbre. Ils sont 5. Un combat s'engage, le groupe gagne et détruit tout ce qu'il a un lien avec le rituel.
+
+***
+
+## Notes de partie 16 (12/07/2020)
+
+Le groupe décide de partir jusqu'à la limite de la zone dangereuse pour faire un camp.
+
+Dans le carnet de note de Poldaran, donc le tableau est un portail vers un autre monde et il est détenu par une guilde de voleur. Un compagnon de Ridaldini Dodo est encore en vue.
+
+Luque et Poldaran se téléportent pour aller à la soirée mondaine où ils ont été invités, accompagnés de Luque. Fenka leur emboîte le pas pour aller se reposer au sanctuaire.
+
+Pendant la soirée mondaine, tout est exotique. La bourse qu'a volé Loris porte les initiales LR, le trio essaye de trouver à qui elle appartient. Luque veut en savoir plus sur l'hôte. Concernant Balador, il est le chef de la guilde des marchands et l'un des trois échevins d'Embrin. Il n'aime pas le P. Falagerne. Il a un oeil sur les marchandises de bateau. Poldaran finit par trouver une personne ayant assisté à l'église. Loris est en train de voler à l'étage de la bâtisse et se fait remarquer par des convives. Loris essaye de s'enfuir. Poldaran et Luque essayent de retrouver Loris et le récupère. Loris suit finalement Poldaran à la trace. Le troisième échevin dirige la guilde des artisans qui a une boutique en ville. Luque remarque une orque. Poldaran essaye de trouver des informations sur le P. Falagerne. Elle apprend que les nobles connaissent le meurtre le frère du Seigneur de la Marche. Poldaran remarque un noble qui le regarde et s'approche d'elle pour en savoir un peu plus sur elle. Il s’agit de Kayron, invité de Balthazor. Il l'invite dans une salle privée. Elle en apprend un peu plus sur la vie politique.
+
+Poldaran, en revenant au rez-de-chaussée, voit de l'agitation à l'entrée. Des gens malfamés et alcoolisés. Ce sont des marins.Loris trouve un moyen de sortir. Luque descend pour aider la situation. La situation se résout. 
+
+***
+
+## Notes de partie 17 (02/08/2020)
+
+Le groupe reprend la route et arrive dans la zone dangereuse.
+
+Sur le chemin, le groupe entend un chant. Sir Henry, Luque et Edwin sont envoûtés par la voix. Les autres membres du groupe les immobilisent. Edwin se réveille, et au même moment des ombres surgissent de la falaise. Ce sont des harpies qui essayent d'attraper Edwin et Henry qui sont toujours sous le coup de l'envoutement.
+
+Une fois les deux harpies meurent, deux grondement surgissent. Deux Ours-hiboux apparaissent et attaquent. Le groupe finit par en sortir victorieux.
+
+Le groupe arrive au village pour terminer l'accompagnement de la famille qu'il avait la charge. 
+
+***
+
+## Notes de partie 18 (09/08/2020)
+
+
+***
+
+## Notes de partie 19 (06/09/2020)
+
+Le groupe, après un contact avec la garde compliquée suite à l’arrestation d'Edwin se retrouve dans une situation délicate.
+
+Le groupe s'échappe par un portail, suivis par le capitaine de la garde. Par ses charmes, Poldaran arrive à avoir des informations. Le groupe est poursuivis pour le meurtre du marchand Bolber qui avait engager des mercenaires pour tuer le groupe. Le groupe a été dénoncé par le mercenaire Garan que le groupe avait épargné précédemment.
+
+Evélia retrouve le groupe le soir à l'auberge. Le groupe se prépare pour aller dans l'église et prépare un plan pour attaquer l'église grâce à l'aide d'Evélia.
+
+***
+
+## Notes de partie 20 (13/09/2020)
+
+Le groupe prend en espionnage un homme qui fait parti du groupe des hématophages. Par observation, la chouette de Poldaran reconnait Garan (le mercenaire que le groupe avait épargné précédemment, ainsi que Kairon) qui n'ont pas l'air de vouloir partir pour la réunion de l'église.
+
+Après avoir assommé le garde, le groupe fait irruption dans la maison. Kairon et Garan sont assommés par Sir Henry. Garan est achevé par Sir Henry, et Kairon est interrogé par Poldaran. Sans informations intéressantes, Edwin lui coupe la tête.
+
+Le groupe pénètre l'église par le portail de Poldaran. Ils y trouvent un jeune pauvre dans l'église qui s'était endormis. Le groupe l'attache et poursuit sa route.
+
+Dans la crypte, les aventuriers se battent contre des moines, qui parfois laissent échapper des ombres. Dans leur investigation, ils découvrent le lieu où des pauvres ont le sang prélevé. Fenka prend le temps de soigner les malheureux, alors que le reste du groupe poursuit ses investigations.
+
+Dans un dernier combat, Luques se retrouve très blessé. Henry et Edwin le portent jusqu'à Fenda pour le soigner.
+
+***
+
+## Notes de partie 21 (04/10/2020)
+
+Le groupe mène une dernière attaque contre le P. Falaguerne et ses complices.
+
+En sortant victorieux, sir Henry, Edwin et Fenka font des recherches dans l'église pour trouver des informations et des trésors.
+
+Ils trouvent un laboratoire secret. Fenka veut passer plus de temps pour trouver des informations et concocter un antidote pour Poldaran.
+
+Le reste du groupe part avec le bateau vers leur nouvelle destination.
+
+# Les Pirates de la Triade
+
+## Notes de partie 22 (13/12/2020)
+
+Le groupe part en mer pour l'île des amazones.
+
+Le groupe demande à Fenka se qui s'est passé face au P. Falagerne. Elle a invoqué sa déesse pour venir en aide au groupe.
+
+Poldaran identifie le bâton de Falagerne. C'est un bâton qui permet de manipuler mentalement une cible une fois par jour.
+
+L'équipe fait un rêve. Il y a des maisons roses, des enfants qui jouent, l'image d'une grande forêt. Fenka voit plus précisément. Le village est en surplomb d'une rivière, il y a un promontoire rocheux, il y a une forêt. Il y a des serpents dans la forêt. Elle distingue une pyramide dans de la roche. Les enfants qui jouent, il y a une créature humanoïde qui les observe, à la fin du rêve, il y a un enfant particulier. Cheveux presque blanc, une tâche de naissance en forme de croissant de lune. Il y a beaucoup de serpents.
+
+A la suite de cela, le bateau marchand qui porte l'équipe est pris dans une brume, suivis d'une attaque par des pirates, la fameuse capitaine rousse qui attaquait les bateaux en pleine mer. Le groupe en sort victorieux. 
+
+***
+
+## Notes de partie 23 (10/01/2021)
+
+Capitaine Anthomée et sa vice-capitaine Ninoxe.
+
+Ninoxe, porte une ancienne blessure au coup.
+
+Le groupe essaye de négocier avec les pirates, et elles acceptent de rencontrer l'échevin Diwin.
+
+Leurs sœur, se trouve dans leur repaire où elles mènent le groupe à travers la brume.
+
+L'équipe débarque sauf Fenka. L'ensemble de îles qui constituent le repaire des pirate a des huttes communautaires, et le groupe débarqué vont à la hutte principale. Ils rencontrent la troisième sœur pirate, Eloïse.
+
+Le groupe décide de se reposer sur l'île, en forçant Fenka à sortir du bateau. 
+
+Anthomée, Ninoxe et Eloïse sont le nom des trois sœurs protectrices. Fenka engage la conversation avec les trois sœurs, qui étaient des esclaves. Le noble a fait naufrage, et les filles esclaves ont commencé leur nouvelle histoire. Il est possible de rencontrer leur cheffe le lendemain.
+
+Le lendemain, Poldaran réalise un portail chez Diwin, accompagnée des trois sœurs, ainsi qu'Edwin et Luque.
+
+Sir Henri visite l'île et trouve une grotte. Il voit un amoncellement d'affaires sans grandes valeurs. Il y a une forme humanoïde. Henri va à sa rencontre. Henri voit des écailles, une queue et une protubérance au niveau de la tête. Le dragon s'est réveillé le même jour où les filles ont fait naufrage. Elle s'appelle Menkhéper. Elle semble souffrir d'amnésie. Fenka restera auprès d'elle pour essayer d'en apprendre mieux sur les dragons et sur la magie. Le reste du groupe revienne des négociations et rencontre Menkhéper.
+
+# L’Île des Amazones
+
+## Notes de partie 24 (17/01/2021)
+
+Le groupe a reprit la mer vers l'île des amazones.
+
+A la fin de la première journée, la brume s'est levée sur la mer, et il est plus facile de naviguer.
+
+Poldaran a finit de déchiffrer le carnet. Rinaldini Dono a volé un tableau qui permet de naviguer vers un autre plan et qui est désactivé. Il y a une histoire de stèle qui sont des portails désactivés qui ont l'air d'avoir un lien avec le tableau. Une au cœur de l'empire draconique, une autre au sanctuaire de clairevoie, et deux autres égarées. 
+
+Le tableau que recherche Luque est un tableau qui est tableau imposant. Il semble y avoir une silhouette avec une couleur rouge dominante. 
+
+Le groupe arrive finalement à destination. C'est une très grande île connue par Sir Henri. Derrière un promontoire rocheux, il y a une grande cité blanche. Sir Henri mène le groupe à travers le port. Certains nobles sont habillés comme Baldazor à Enclin.
+
+Un diplomate descend, connu de Sir Henri, Galnir. Agé, droit et à l'aise en communication. Il vient vers le groupe. Sir Henri et Galnir se saluent. Galnir accueille le groupe dans son bureau. Laudinia est la nouvelle cheffe du groupe des amazones. Seuls les femmes pourront rencontrer Diane avec Sir Henri sous escorte. Les hommes devront rester sur place. Henri demande à Galnir de voir si cela peut changer.
+
+La cité de Démiscira est réservé aux amazones et aux natifs. Le port est le contact avec le monde. Galnir s'occupe de l'accueil et des négociations avec le reste du monde. La cheffe des amazones est élue par compétition. 
+
+Le groupe va se reposer à l'auberge de la moule rieuse proposer par Galnir. En sortant du bâtiment, Henri est interpellé. C'est une voix de femme imposante. Il s'agit d'Oldéa, tutrice, capitaine du port. Elle suit le groupe jusqu'à l'auberge. 
+
+A l'auberge, des hommes essayent d'extorquer de l'argent, y compris au groupe. Poldaran évite la confrontation en utilisant le bâton de Falagerne. Loris disparait, le groupe part à sa recherche. Shérazade et Edwin questionnent le enfants qui ont vu Loris suivre les gardes dans les terres.
+
+Le groupe se retrouve au niveau d'une sortie de la ville. Mangeciel, la louve de Fenka, trouve la piste de Loris et le groupe la suit. En arrivant sur les lieux, il y a Loris est accroupis derrière un buisson. Avec sa bulle de silence, Luque arrête Loris avant qu'il ne se fasse repérer. Le groupe décide de suivre les soldats suivis par Loris. Ils sont arrivés dans un édifice en bois. Poldaran, en chouette, observe à l'intérieur. Il y a une quinzaine de soldats, et ils sont en train de compter de l'argent.
+
+Au bout d'un certain temps, il y a le ton monte. Le garde qui a été roulé s'est rendu compte de la fourberie de Poldaran. Fenka fait une grenade smoke que Shérazade dans le bâtiment. Cela manque sa cible. Certains ennemis ventilent, d'autres se rue par la porte. Un combat commence.
+
+***
+
+## Notes de partie 25 (24/01/2021)
+
+Le groupe ressort victorieux avec les gardes corrompus, et Poldaran appelle la cheffe de la garde. Oldéa arrive, le groupe lui explique la situation. Oldéa s'occupe de l'affaire.
+
+Après un repos long mérité, Galnir autorise l'entrée chez les Amazones. Sir Henri est allé rencontré Diane, sa mère génitrice. 
+
+Le Père de sir Henri rendez des comptes au Greywolf (famille d'Edwin, ce dernier ne savait pas qu'il travaillait pour les services secrets) ; Dandelions communauté criminelle qui travaille avec la secte et qui vole des artefacts magiques ; Le baron Morlon à Najac connait le lieu du rituel.
+
+Fenka se sentant appelé à aller au sommet, se rend invisible. Poldaran la suite en forme de chouette. Luque fait diversion en ramenant la garde vers le bas. En rentrant, Fenka s'aperçoit qu'il n'y a personne si ce n'est la musique. Elle vient d'une salle en contre bas venant d'une statue représentant une personne en armure qui est assis, appuyé sur un bouclier, l'autre avec une épée droite. La musique vient derrière la statue, d'un petit garçon qui a reconnu Fenka dans l'invisibilité. 
+
+***
+
+## Notes de partie 26 (31/01/2021)
+
+Fenka et Poldaran rencontrent le roi des rats, qui est Saint Eustache de la larme. 
+
+Il apprend que des dieux peuvent se joindre à leur quête pour les aider.
+
+Le groupe décide de partir Forgefer pour obtenir de meilleurs information. Deux Dieux qui seraient favorables. Saint Tristian et Saint Elule. Sainte Capuche, est un dieu qui sera difficile. Birabel est le dieu de la connaissance, et n'a que faire des histoires des mortels.
+
+Evélia est en train de discuter avec le capitaine du port. Poldaran, en chouette, essaye de connaître la situation. Elle s'est fait identifiée, et se poursuivre par les gardes. Luque, Fenka et Shérazade essayent de s'approcher d'Evélia. 
+
+Sir Henri et Edwin s'en prennent aux gardes qui chassaient Poldaran. 
+
+# Forgefer
+
+## Notes de partie 27 (07/02/2021)
+
+Sur le trajet vers Forgefer, le groupe trouve sur le bord de la route des paysans venant de La Marche qui se sont enfuis des attaques des trolls. 
+
+Le groupe s'arrête pour les aider. Fenka, en interrogeant, comprend que les trolls attaquent depuis l'intérieur des terres du Seigneur de La Marche.
+
+Sur le chemin, en arrivant près des collines, il y a une atmosphère assez pesante. Le ciel s'est assombri. Pour Fenka, cela lui rappelle qu'il y a des collines différentes où il y a des anciens tertres. Ces terres ne sont pas fréquentés. L'air commence à se rafraichir et une brume s'est levée. L'air commence à manquer, Fenka comprend que ce n'est pas naturel. Fenka et Luque prennent des points de blessures.
+
+Après être libérée de cette brume, les montagnes de Forgefer sont en vue. Il y a au loin les lumières d'un feu de camp. Deux personnes sont allongées, Fenka, qui conduit, fait le choix de ne pas s'y arrêter.
+
+Luque aperçoit un groupe qui marche à pied. Ce sont tous des gnomes. Ils transportent quelque chose vers Forgefer. 
+
+Finalement, le groupe arrive à Forgefer. C'est une architecture en pierre et en tuile. Il y a une majorité de gnomes qui vivent ici. Ils sont différents de Fenka, ils sont plus épais que Fenka. Il y a d'autres voyageurs. Le groupe va vers l'auberge. Fenka découvre Forgefer, qui est assez petit. On entend pas les bruits de forge. Du côté de la montagne, il y a une ouverture qui est taillée dans la montagne. Fenka trouve un lieu de culte au centre du village. Il y a tous les cultes, même les anciens. Ils sont plutôt au fond du temple, et personne ne s'y rend. 
+
+Edwin se renseigne auprès de l'auberge. Le groupe n'est pas encore à Forgefer. Pour pouvoir y faire affaire il faut entrer par la grande ouverture de la montagne. Apparemment, il y a des difficultés à faire des affaires. La ville est dirigée par un conseil, par les représentant des guildes de la ville. Pour acquérir les meilleures pièces, il va falloir parlementer difficile. Le meilleur Forgeron est maître Bonneton.
+
+Le groupe entre au centre de Forgefer, et arrive dans un énorme cirque qui dessine une enclave dans la chaîne de montagne. Au deuxième poste de péage, la ville est beaucoup plus impressionnante. En recherche d'informations, il y a des ambiances très tendus. Luque s'adresse aux marchands. Les artisans sont bloqués. Il y a un problème d'approvisionnement. Les propositions sont très dépouillés. 
+
+Edwin et Sir Henri décident de partir pour venir en aide aux gnomes. Luque les accompagne. Fenka les rejoint. Les gnomes sont arrivés en ville. Le groupe se renseigne. Le artisans semblent éprouver des difficultés à s'approvisionner en fer. La guilde de l'acier. Il est haut-placé de la guilde de l'acier. Le bâtiment du guilde de l'acier gigantesque.
+
+Fenka essaye de se renseigner auprès des intendants. Le fer vient normalement du cirque de forgefer. Le groupe va à la guilde des eaux à côté de la station minière qui s'occupe de la gestion du fer. A l'intérieur, c'est modeste et beaucoup complexe dans la guilde de l'acier. Il y a très peu de gens. Depuis environ 2 mois, il leur est interdit de miner à la mine principale. Il y a eu un incident. Mais ils ne savent pas pourquoi. Les mineurs vont donc à l'extérieur pour s'approvisionner. Apparemment c'est la guilde d'acier sur les mercenaires qui s'occupent du problème de la mine.
+
+Edwin est d'accord avec Luque qui vient de sommer de rencontrer un responsable et de savoir comment résoudre la problématique. Un gnome s'approche, plutôt bien habillé s'approche et prend la place de l'intendant qui le respecte. Il s'agit de Ronéor. Il conduit le groupe à une taverne dans les ruelles. 
+
+Ronéor siège au conseil et il veut régler le problème de manière discrète. L'incident le mine, c'est que des morts vivants se sont réveillés dans la mine. 
+
+***
+
+## Notes de partie 28 (14/02/2021)
+
+Poldaran, avec l'aide du groupe, fait des recherches sur le fameux lieux infesté par les morts-vivants.
+
+Il y a très longtemps, il y avait un ancien empire qui a disparu. Apparemment, les habitants étaient des hommes réptiles.
+
+Pour abattre les morts-vivants, le feu fait énormément de dégâts. Apparemment, les âmes qui ne peuvent pas se réincarner ou rejoindre le royaume des morts qui tombent dans des corps.
+
+Iril, le mineur, est mandaté pour aller jusqu'à la mine et diriger le groupe. Il y a au bout du voyage, il y a un trou qui arrive sur une caverne naturelle. 
+
+L'ordre de marche : Edwin avec Poldaran, Fenka, Luque et Sir Henry
+
+Poldaran voit sur la gauche il y a comme une sortie et sur la droite des racines qui semblent descendre du plafond et masquent un peu d'éboulement. Au pied de l'éboulement , il y a des traces de sang.
+
+Le groupe va d'abord vers la gauche. Edwin voit des traces de passage qui vient des trous du boyau. Les traces sont des pieds nus qui ressemblent à des pieds d'humain petits, légers. Il y a beaucoup de traces. Les racines de l'arbre sont celui d'un arbre, mais cela interroge sur la profondeur. 
+
+Le groupe s'engouffre dans l'autre passage. Il y a une zone où le sol devient plus haut d'un coup et sur un escalier qui descend. Plus loin le plafond se réduit sévèrement. Mais il y a beaucoup de crasse et des détritus. 
+
+Dans une impasse à gauche, il semble avoir une porte. 
+
+Plus loin, Poldaran et Edwin voient une salle creusée à la main. Il y a quelque chose dans cette salle ce qui semble être des plantes en putréfaction, il y a des objets brillants dans le sol. Des champignons. Des plantations. 
+
+Luque et Fenka entre dans une salle dans l'impasse. Il y a 8 piliers cassés avec des statues cassées. 
+
+Poldaran, en regardant les piliers, elle ne se sent pas bien et sa peau devient grisâtre. Ses membres sont engourdis. Fenka perçoit un basilique qui regardait Poldaran. Un jeu de cache-cache se met en place.
+
+Après la victoire sur le Basilique, à gaucher il y a une sorte de porte qui sont des serpents entremêlés où il manque une tête. Tandis qu'une autre est une porte normale. Il y a un escalier qui se tourne vers le sud. 
+
+Luque la porte simple. Il y a une lueur violacée. Il semblerai être un salon. Sur le canapé, il y a un être avec le bas du corps qui est serpent, et le haut celui d'un humain. A l'allure assez desséché. Ses membres sont entourés de bandelettes, et une robe en haillon. Il est en train de lire.
+
+Il s'agit de Xiximantre. Il avait derrière son salon un laboratoire où il travaille sur l'immortalité. 
+
+***
+
+## Notes de partie 29 (28/02/2021)
+
+Les personnages continuent d'explorer le donjon et affrontent de nombreux pièges.
+
+Sir Henry et Poldaran trouvent un lieu avec un trou remplis de lave. Poldaran découvre que la fausse est une fausse sacrificielle.
+
+Edwin et Luques rencontrent des créatures nécrophages.
+
+Edwin et Sir Henri rencontrent une créature nécrophage qui garde. Ils arrivent à communiquer, et à passer.
+
+Fenka, dans son entrevue avec Xiximandre, comprend qu'il utilise les créatures nécrophages pour ses expériences. Au dessus de la cité, il y a la présence des prêtres normalement. Au moment où Fenka veut s'en aller, mais elle se fait endormir. 
+
+Edwin, Sir Henry, Luques et Poldaran se retrouvent ensemble, et rejoignent Fenka. Elle est libérée par ses compagnons, et combat s'engage avec Xiximandre, dont ils sortent vainqueur. 
+
+***
+
+## Notes de partie 30 (7/03/2021)
+
+Le groupe continue son exploration.
+
+Il affronte une grande statue, puis continue son exploration.
+
+***
+
+## Notes de partie 31 (14/03/2021)
+
+Le groupe a finit de piller le donjon, et va à l'encontre de Ronéor.
+
+Le groupe, après avoir récupéré diverses récompenses, part pour Najac. C'est le début de l'hiver.
+
+Le groupe se rend compte qu'il y a quelque chose se passe au cœur des communautés qu'il traverse. LE groupe arrive finalement à Najac.
+
+Une révolte a éclaté par rapport à l'implantation des gnomes au sud de Najac, et la situation a dégénéré. 
+
+# Najac et le Val des Corbeaux
+
+## Notes de partie 32 (23/05/2021)
+
+Le groupe est à Najac
+
+Le groupe prend connaissance auprès du tavernier sur le baron. Depuis la rébellion, les relations sont tendues. Notamment avec les gnomes. 
+
+Il y a un cirque en ville, Vistani, au nord est de la ville. 
+
+La famille du baron vit dans un chateau sur une colline. Pour se rapprocher de Lui, il faut aller voir le chevalier d'Orfay. Edwin veut faire des repérages en visitant. Edwin commence à apercevoir les tours de garde. Il se rapproche pour essayer de se faire embaucher pour la garde.
+
+Fenka s'en va pour les gardes pour leur donner des victuailles et soigner des blessures. Il profite pour prendre des informations. Il y a des patrouilles dans la forêt, et il y a un camp de prisonniers. Il y a un colonel qui a la charge pour mater la rébellion dans la forêt. Il y aurait des "sorcières" de l'ancien culte qui utiliserait la forêt à son avantage. 
+
+Le reste du groupe va au cirque pour prendre des informations. Ils rencontrent Romuald. Pas de liens particuliers avec la forêt.
+
+Fenka rencontre le colonel qui lui permet de rencontrer les prisonniers. Il y a des prêtresses de l'ancien culte dans la forêt. Il est trop difficile de pouvoir s'y aventurer sans un guide.
+
+Edwin est convoqué par la garde pour rencontré le chevalier d'Orfay. 
+
+Apparemment il y aurait des espions dans la ville. Un ancien culte sévirait dans la ville qui serait en réaction au culte des sorcières dans la forêt.
+
+Une femme recherchant sa fille entre dans la taverne pour trouver sa fille. L'équipe essaye de retrouver Lua, la fille. Grâce à Poldaran, on découvre que la fille est au château. 
+
+Selon l'aubergiste, il y a énormément de disparitions dans le village. 
+
+Edwin a rdv avec la garde pour s'infiltrer en travaillant pour eux ; sir henry et luque ont rdv sous un arbre.
+
+***
+
+## Notes de partie 33 (30/05/2021)
+
+Sir Henry et Luques vont à la rencontre du Camphrier. Un berger les rejoint au lieu de rdv. Il confirme qu'il y a de nombreuses disparitions. Il a l'impression que quelque chose se trame dans l'ombre. Il fait parti d'un groupe qui est lié à un trappeur qui prie un culte d'un ancien Dieu. Ils essayent de contrecarrer ce qui se déroule au niveau du cirque, de la forêt et de la baronnerie. Il a une mauvaise opinion des personnes de la forêt. Soupçon sur les gens du cirque : profanation de sépultures très régulièrement, il pense que c'est ceux du cirque. Il s'appelle Bérin. Le groupe est lié à Saint Elule. 
+
+Edwin se rend avec Poldaran pour le recrutement de la garde de la baronnerie. Le chevalier d'Orfay l'accueille au château. Les gardes sont des mercenaires. Poldaran ne ressent plus la présence de la fille. La louve d'Edwin essaye de tracer la présence de la fille disparue, et elle a une piste. Edwin et Poldaran rentrent dans le bureau du chevalier. Il y a une armure derrière lui, ainsi que des armes. Le chevalier est un vrai combattant. La baronnerie recrute énormément de mercenaires pour avoir un effectif important. Le chevalier d'Orfay lui propose de prendre ses nouveaux quartiers. Tous les mercenaires sont sous les ordres du chevalier d'Orfay. Il y a des baraquements où logent les mercenaires. 
+
+En 2, il y a une église du culte des trois sœurs. En 3 et 4 c'est le lieu des cultes anciens. Fenka se balade dans la cité. Elle rencontre un pécheur qui croit encore dans les anciens dieux. Après une proposition de célébrer un culte, Fenka a un rdv pour un culte chez le guérisseur au nord (10).
+
+Edwin entreprend de se balader dans le château avec sa louve. Il fait valoir une patrouille. Il est vite arrêté par la garde personnelle des barons. 
+
+Luque, Fenka et Sir Henry se retrouvent à l'auberge puis décident de prendre la route vers le cimetière.
+
+Edwin interroge Romuald qui l'a rencontré quand il est rentré dans la ville. Il est embêté sur la question des enfants qui disparaissent, et il prend rdv le soir chez Edwin. 
+
+Le trio rencontre le fossoyeur. Bérin est l'un des plus grands éleveurs de la ville. Le fossoyeur explique des cadavres ont été déterré. Quelques mois, presqu'un an. 
+
+Le pet dragon de Poldaran va observer en haut de la tour. Elle est protégée par de la magie. Il y a des odeurs de sang et de potions. 
+
+Le trio se rend à l'église des trois sœurs, très simple. Pas d'informations particulières.
+
+Luques et Fenka se rendent chez le rebouteux. Bérin et le garde du cimetière. Ils font partis du même groupe de Saint Elule. Ils peuvent mener jusqu'au sanctuaire de Saint Elule, mais le sentier est très dangereux. 
+
+Poldaran et Edwin rencontrent Romuald. Il travaille avec les sorcières, c'est un espion. Il sait que c'est au château. Il y aurait une clepsydre sur la porte qui l'empêche de l'ouvrir. Quand Romuald s'en va, il y a une forme qui apparait humaine qui apparait au milieu de la pièce et attaque avec une boule noire, et puis des gardes font irruptions. Ils tabassent Romuald, et le chevalier d'Orfray apparait et déconseille Poldaran et Edwin d'agir. 
+
+***
+
+## Notes de partie 34 (20/06/2021)
+
+Poldaran et Edwin se rendent avec Romuald, et Poldaran envoie sa chouette au reste de l'équipe. Poldaran ne perçoit de magie particulière. 
+
+Evelia prend contact avec Fenka : il y a un soucis dans la prison de Falagerne, Evelia demande où est le groupe. 
+
+La chouette de Poldaran apprend à Fenka que Poldaran et Edwin sont en prison. Luke s'infiltre dans le chateau. Le chevalier d'Onfraie arrive et emmène Poldaran et Edwin, suivis par Luke invisible et silencieux. Il va essayer de récupérer le matériel de Poldaran et Edwin.
+
+La porte sans poignée s'ouvre avec une solution alchimique. Luque lance une attaque ténèbre pour intervenir. Il rentrent en confrontation.
+
+A la fin du combat, le chevalier d'Orfraie lance une attaque de ténèbres qui met à terre tout le groupe (sauf Luque qui est resté de l'autre côté du portail).
+
+Le groupe va chez Bérin pour se soigner, et soigner Loris et les animaux
+
+***
+
+## Notes de partie 35 (26/06/2021)
+
+Fenka prend contact avec Evélia. Et elle arrive avec deux personnes.
+
+Luque aide les survivants, rencontre le colonel pour l’informer sur le chevalier d’Orfraie, il a besoin de de preuve contre le baron. Poldaran aide les survivants, le baron la reconnait, il nomme le groupe « les vagabonds de la marche ».
+
+Sir Henry et Edwin, déguisés par la potion de morphologie, rencontre un parent de Romuald, et ils prennent rendez-vous avec une sœur de la forêt. Ils vont vérifier où est la cellule de Romuald.
+
+Luque, déguisé en messager, apporte le livre du Père de Sir Henry au colonnel. Il le reconnait, mais il accepte de lire le livre.
+
+Tout le monde de retour, Poldaran, crée un portail dans la cellule de Romuald, et Edwin va le sauver.
+
+Poldaran crée un portail pour faire venir Evélia et deux alliés que le groupe connait. Gaillarde, qui nous apprend que son père est mort. Géhanne est décédée. Adelyne continue à garder le château. Amixandre a quitté le château. Le deuxième allié Ernest Blinville, accompagne Gaillarde.
+
+Edwin voit que des gardes vont à la ferme. Fenka et Luques ont le temps de s'enfuir avec Loris. Edwin voit des gardes dans la maison de Romuald, et arrive à les détourner. 
+
+***
+
+## Notes de partie 36 (04/07/2021)
+
+Le groupe fait la rencontre de Reyna, une des trois sorcières de la forêt. Elle profite du tour de garde de nuit pour faire la rencontre des personnages. 
+
+
+Le groupe décide de partir vers la forêt. Loris résidera sur l'île des amazones en attendant qu'il soit soigné. La route est longue. 
+
+Le groupe découvre un groupe de garde royale perdu, puis un arbre animé attaque le groupe. Reyna arrive à le contrôler, et le groupe arrive à faire dissuader les soldats pour qu'ils partent. 
+
+Les animaux sont anormalement gros. Le groupe fait un bivouac.
+
+***
+
+## Notes de partie 37 (11/07/2021)
+
+Après une nuit de repos, le groupe reprend la route, dans une partie de la forêt plus dense et menaçante. 
+
+A un moment donné, des gros se font entendre. Puis un énorme grognement. C'est une mandragore. Reyna arrive à la calmer. L'équipe arrive auprès de trois gardes du camp. Ils amènent l'équipe dans un campement avec des cabanes suspendues. 
+
+Le groupe rencontre Mordred et Hyacinthe. Elles sont en discussion animée avec un homme. Mordred accueille le groupe. Un sidhe âgé énervé est présent. Il a un pendentif autour du cou qui symbolise une tête de loup. Saint Ellule. 
+
+Le groupe échange avec les sœurs, et décide, après s'être posé, d'aller voir Géralt, le sidhe responsable du culte de Saint Ellule. Il est contre l'invocation des mandragores qui sembleraient plus primitives. 
+
+Fenka lui parle de sa rencontre avec Saint Eustache et veut conduire le groupe sur le lieu du culte. Après s'être reposé, le groupe part avec Géralt et un soldat royal part en panique. Poldaran le renvoie à la ville.
+
+Le groupe arrive finalement à un arbre géant, avec une croissance naturelle. Au creux des racines, Géralt montrent une pierre taillée symbolisant un sanctuaire avec des sculptures qui font tout le tour. C'est une fresque qui semble raconter une histoire. Géralt explique qu'on est au sanctuaire de Saint Ellule très bien entretenu. La fresque semble raconter la vie de Saint Ellule. 
+
+Les capelans célèbrent Saint Ellules. A la fin, les louves courent et reviennent avec une personne encapuchonnée. 
+
+***
+
+## Notes de partie 38 (18/07/2021)
+
+Le groupe rencontre Saint Ellules et lui raconte toute leur histoire. Il veut bien donner son aide. Il va aider à calmer les mandragores après l’attaque sur le château des barons. 
+
+Les mandragores ont fini d'être invoqués et sont prêt à attaquer le château le lendemain.
+
+Le groupe retourne vers Najac à travers un portail. Le Colonel accepte d'aider et commence à faire évacuer la ville parce que l'attaque aura lieu demain.
+
+Le groupe pose la question de la présence de Gaillarde et d'Ernest avec Evélia. Gaillarde a décidé de suivre Evélia par rapport au début de l'enquête sur Salicard. Ernest a participé à l'enquête avec Gaillarde car il est comme son écuyer. Luques, Edwin et Henry interroge Ernest. Il sait que c'est le groupe qui a tué Sallicard. Il est attiré par le pouvoir du sang. Il a été initié aux ténèbres par Sallicard, et il a essayé. Edwin l'assomme, Luques l'attache. 
+
+Les filles du groupe sont avec Gaillarde pour lui poser des questions. Elle raconte ce qui s'est passé à la marche. Les attaques de troll se sont intensifiés. Un dragon, qui menait les trolls, a pris possession du Château. Skrofulax est le nom du dragon. Une attaque au château a permis de le reprendre au prix de la vie du seigneur de la marche. Elle dit qu'Ernest connait Sallicard. 
+
+Le groupe des garçons ramène Ernest à Evélia, et il recherche le pouvoir des ténèbres. 
+
+***
+
+## Notes de partie 39 (25/07/2021)
+
+Pendant l'évacuation, le colonel a signalé la disparition de personnes. 
+
+Evélia va accompagner le groupe. Les mandragores attaquent sur la gauche.
+
+Dans une maison, des cris de peurs s'entendent, avec des groupes de mercenaires. Le groupe est pris dans une embuscade. Le groupe sauve la famille restée.
+
+Le groupe reprend sa marche vers les murs, puis se téléporte vers le poste de garde. Le groupe arrive à convaincre d'ouvrir la grille. 
+
+Poldaran invoque une créature pour faire diversion pour aller vers la porte. D'étranges personnes "zombies" semblent partir vers la ville. 
+
+Le groupe rentre tout de même vers le château. 3 officiers bloquent la porte. Après s'en être occupé, ils arrivent devant la porte. Et après avoir détruit des glyphes qui la protégeait, le groupe rentre et se retrouve face aux barons. Et un combat commence.
+
+***
+
+## Notes de partie 40 (29/08/2021)
+
+Le groupe découpe la tête du baron et de la baronne pour les interroger plus tard, et s'en sert pour terminer l'affrontement. Poldaran va essayer de savoir ce qui se passe avec son invocation. Reyna vient aider le reste de la bataille. Luque brandit les têtes des barons.
+
+Le reste du groupe fouille le château. Il y a les armes des nains, le stockage des zombies, le laboratoire pour des expériences, le bureau, la chambre des barons et une salle de torture.
+
+Fenka dans des lettres trouvées, trouve le lieu de l'invocation. Le serpent est à la Capitale à Duria, et qu'il interagit avec les dandelions. Il y a des contacts qui sont mentionnés. Pas d'indice sur l'identité du serpent.
+
+Les barons ont fait venir les gnomes à prix avantageux, pour récupérer des armes.
+
+Le lieu de l'invocation est dans une tour dans un ravin.
+
+Le baron a payé les dandelions pour tuer le père d'Edwin.
+
+Les mandragores attaquent les rebelles de la forêt. Luque prie st Ellule qui apparait et qui calme les mandragores. UN marché se déroule : les mandragores retournent sur leur terre, et les rebelles de la forêt retournent au village.
+
+Après le conseil de guerre, une femme mystérieuse demande à voir les barons. Il s'agit de Nostenfer. Elle invoque un portail où des hommes en armure sortent. Le combat commence. Nostenfer s'enfuit en infligeant une boule de feu à Edwin.
+
+***
+
+## Notes de partie 41 (05/09/2021)
+
